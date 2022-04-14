@@ -1,1 +1,1 @@
-Department of Mathematics / MJU
+.
